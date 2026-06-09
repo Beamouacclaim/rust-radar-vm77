@@ -1,4 +1,4 @@
-
+Clandestino rust-trapaça radar é o melhor rust-trapaça radar com sem espalhamento e mira silenciosa. Seguro, confiável e otimizado para máximo desempenho.
 
 
 
